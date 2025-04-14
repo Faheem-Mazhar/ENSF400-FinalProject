@@ -1,8 +1,0 @@
-Testing
-Testing #2
-Testing #3
-Testing #4
-Testing #5
-Testing FINALE
-
-Testing as a group
